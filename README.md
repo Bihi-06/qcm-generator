@@ -153,4 +153,4 @@ MIT License — Free to use and modify.
 
 ## 🙋‍♂️ Author
 
-Built with ❤️ by [Your Name]
+Built with ❤️ by Ayoub ait said
